@@ -1,2 +1,0 @@
-# mrsdizzie.github.io
-pages
